@@ -1,6 +1,6 @@
 # WINGO HACK 👇
 
-https://t.me/wingohack0
+[Google] https://t.me/wingohack0
 
 ## FEATURES
 - Results with period number
