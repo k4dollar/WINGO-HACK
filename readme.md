@@ -1,4 +1,4 @@
-# Title WINGO HACK 
+# WINGO HACK 
 
 https://t.me/wingohack0
 
